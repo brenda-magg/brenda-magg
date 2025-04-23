@@ -1,4 +1,4 @@
-### Hi There! :v: :cherry_blossom:
+### Hi! :v: :cherry_blossom:
 
 
 
